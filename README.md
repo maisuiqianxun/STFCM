@@ -1,3 +1,3 @@
 # STFCM
 
-If there is something doubt, please contact maisuiy@outlook.com
+If there is something doubt, welcome to let me know by  maisuiy@outlook.com
